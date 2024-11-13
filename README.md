@@ -1,5 +1,5 @@
 # 💫 About Me:
-😶‍🌫️Maybe it's Masoud<br>📊 Data Analyst <br>📔 Learner forever <br>🔢 Into dance with numbers<br>🎞️ Movies and series passion<br>🎮 online gamer
+😶‍🌫️Maybe it's Masoud<br>📊 Analyst <br>📔 Learner forever <br>🔢 Into dance with numbers<br>🎞️ Movies and series passion<br>🎮 online gamer
 
 
 ## 🌐 Socials:
